@@ -1,4 +1,3 @@
-
-![fivem](https://i.imgur.com/W7akDTH.png)
+Discord : https://discord.gg/3rm8Jdf2Vq
 
 Vidéo : https://youtu.be/UHzfTE1qB5M
